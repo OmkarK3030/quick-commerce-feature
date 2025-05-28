@@ -93,9 +93,9 @@ Quick commerce platforms often face the challenge of delivering small, frequent 
 
 **Omkar Kabugade**  
 Product Manager | Growth Strategy | Quick Commerce  
-📧 omkar.kabugade@example.com  
-🔗 [LinkedIn](https://linkedin.com/in/yourprofile)  
-🔗 [Portfolio](https://your-portfolio.com)
+📧 omkabugade@gmail.com
+🔗 [LinkedIn](https://www.linkedin.com/in/omkar-kabugade-306460199/)  
+🔗 [Portfolio](https://omkark3030.github.io/portfolio/)
 
 ---
 
